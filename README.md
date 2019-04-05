@@ -1,0 +1,2 @@
+# artikel
+latihan membuat repostori
